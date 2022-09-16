@@ -1,3 +1,3 @@
 # nlw-Esports
-https://felipes1999.github.io/nlw/
+https://felipes1999.github.io/nlw-Esports/
 
